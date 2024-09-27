@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=madhu-art&label=Profile%20views&color=0e75b6&style=flat" alt="madhu-art" /> </p>
 
-- 📫 How to reach me **garikimadhu46595@gmaiol.com**
+- 📫 How to reach me **garikimadhu46595@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
